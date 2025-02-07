@@ -2,5 +2,5 @@
 
 Helena Viana Sundin
 
-![](https://media.tenor.com/Gg_ILHLy-NwAAAAM/yuri22.gif)
+![](https://media.tenor.com/3AKZ8dsNOMIAAAAM/yuri-22.gif)
 
